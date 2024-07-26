@@ -1,2 +1,19 @@
-# test01
-test02
+learn github for first day
+
+#
+#
+#
+#
+@@@
+@@@@
+@@@@@
+@@@@@@
+$
+$$$
+$$$$$
+$$$$$$$
+----------------------
+whoever see it will be richer this year
+???
+
+hello
